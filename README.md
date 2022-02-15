@@ -1,2 +1,0 @@
-"# Sotsu.Gamen" 
-"# Sotsu.Gamen" 
